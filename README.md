@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Full stack projects<br>👯 I’m looking to collaborate on real world projects + great designs<br>⚡ Fun fact I failed in computer subject during 6 class
+🔭 I’m currently working on Full stack projects<br>👯 I’m looking to collaborate on real world projects + great designs<br>⚡ Fun fact I failed in computer subject during 6th class
 
 
 ## 🌐 Socials:
